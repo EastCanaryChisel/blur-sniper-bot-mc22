@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with AI-powered blur sniper bot | flip-strategies + simulation-mode, the #1 blur sniper bot. Includes flip-strategies and simulation-mode for a faster and
 
 
 
